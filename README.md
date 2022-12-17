@@ -9,4 +9,5 @@
 •	📩Se desejar, me envie um e-mail em giovanarsroberto985@hotmail.com
 
 
-![image](https://user-images.githubusercontent.com/117125157/208266369-0670a550-e121-48c5-a2e8-8515ae10a643.png)
+![image](www.linkedin.com/in/giovana-roberto-a40a62158)
+
