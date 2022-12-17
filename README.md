@@ -9,5 +9,6 @@
 •	📩Se desejar, me envie um e-mail em giovanarsroberto985@hotmail.com
 
 
-![image](www.linkedin.com/in/giovana-roberto-a40a62158)
+
+
 
