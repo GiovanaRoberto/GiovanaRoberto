@@ -7,6 +7,7 @@
 •	🎓Atualmente sou formada em Engenharia Civil e  estou cursando pós de Analise e Desenvolvimento de Programas
 
 •	📩Se desejar, me envie um e-mail em giovanarsroberto985@hotmail.com
+•	📩Baixe meu curriculo <a href="https://drive.google.com/file/d/1GJ_4pxKk0VR8f4SMLQ9xB8RGSmY94Lc8/view?usp=sharing" Clique aqui.> 
 
 <div align="center">
   <a href="https://github.com/GiovanaRoberto">
